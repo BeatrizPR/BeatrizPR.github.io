@@ -1,3 +1,3 @@
 # BeatrizPR.github.io
 
-Currículum vitae
+Currículum vitae[https://beatrizpr.github.io/]
